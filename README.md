@@ -9,7 +9,7 @@
 ---
 
 ### 🛠 Connect with me:
-<!-- Add any social media links here if you want -->
+- 📧 Email: [ehung020903@gmail.com](mailto:ehung020903@gmail.com)
 
 ---
 
