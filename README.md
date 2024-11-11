@@ -9,7 +9,7 @@
 ---
 
 ### 🛠 Connect with me:
-- 📧 Email: [ehung020903@gmail.com](mailto:ehung020903@gmail.com)
+- 📧 Email: [lehung020903@gmail.com](mailto:ehung020903@gmail.com)
 
 ---
 
